@@ -1,1 +1,1 @@
-# 1d-tugas1-malik-syafii
+# 1d-tugas1-malik-syafi'i
